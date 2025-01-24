@@ -16,4 +16,5 @@ Here are some ideas to get you started:
 -->
 
 X: https://x.com/fire_fire_2<br>
+Bluesky: https://bsky.app/profile/firefire2.bsky.social<br>
 Speaker Deck: https://speakerdeck.com/firefire2/

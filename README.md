@@ -16,4 +16,4 @@ Here are some ideas to get you started:
 -->
 
 X: https://x.com/fire_fire_2<br>
-SpeakerDeck: https://x.com/fire_fire_2
+Speaker Deck: https://speakerdeck.com/firefire2/

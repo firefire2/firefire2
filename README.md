@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+X: https://x.com/fire_fire_2<br>
+SpeakerDeck: https://x.com/fire_fire_2
